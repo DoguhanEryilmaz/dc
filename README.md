@@ -50,3 +50,6 @@ tamam. ama sonuc genelde degismez, bir yanlislik varsa yayina gel modlara DM at,
 UNUTMAYIN, bu bir oyun, kimse kimseyi bir sinava tabi tutmuyor, burada amac eglenmek ve ogrenmek. 
 umarim bu aciklama yeterli olmustur ;) sitem etmenize gerek yok, eglenmeye calisin lutfen.
 sevgiler,
+
+
+<!--- aradigin bu olabilir mi ?== uggcf://qvfpbeq.tt/dmwoeGU7DD== --->
