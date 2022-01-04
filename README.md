@@ -53,5 +53,5 @@ UNUTMAYIN, bu bir oyun, kimse kimseyi bir sinava tabi tutmuyor, burada amac egle
 umarim bu aciklama yeterli olmustur ;) sitem etmenize gerek yok, eglenmeye calisin lutfen.
 sevgiler,
 
-
-<!--- aradigin bu olabilir mi ?== uggcf://qvfpbeq.tt/dmwoeGU7DD== --->
+<!--- Buraya Bak --->
+<!--- ctcfkikp dw qncdknkt ok ?== jvvru://fkueqtf.eqo/kpxkvg/sbldtVJ7SS== --->
